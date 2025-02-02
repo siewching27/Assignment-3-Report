@@ -17,8 +17,7 @@ After listening to the talk, I gained several valuable insights that I can apply
 1️⃣ In terms of **technical skills**, I need to master programming languages and database management, while also developing my <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;analytical and logical abilities.<br>
 2️⃣ On the **management side**, I should focus on improving problem-solving, communication, collaboration and leadership skills.<br>
-3️⃣ **Applying for jobs or internships** early is a smart move, especially by the third year, as the competition intensifies over time. <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Internships at top companies not only provide valuable experience but also help **build connections** that can offer a significant 
+3️⃣ **Applying for jobs or internships** early is a smart move, especially by the third year, as the competition intensifies over time. Internships at top companies not only provide<br> valuable experience but also help **build connections** that can offer a significant 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;advantage in the job market.
 
 To further improve myself, I plan to **actively explore** and engage in areas that pique my interestuse to become more versatile and well-rounded. Besides, I will also develop both technical and management skills **at a pace that suits our style**, staying focused on **personal growth** rather than comparing myself to others. By doing so, I can know what i really want and be more motivated to pursue my goals. To enhance my chances of employment, I will also **apply the IRPA method** during my job search and leverage job portals like JobStreet and LinkedIn to connect with potential employers.
